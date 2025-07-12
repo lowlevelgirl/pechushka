@@ -1,4 +1,4 @@
-# Pechyhime & Ptushka
+# 💖 Pechushka ✨
 
 Made with love  
 by
